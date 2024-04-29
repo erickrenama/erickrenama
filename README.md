@@ -1,4 +1,4 @@
-### Olá, Bem Vindo! Eu me chamo Erick Renan👋🏽
+### Olá, Bem Vindo! Eu sou Erick Renan, estudante de Programação👋🏽
 
 ## Contatos 📱
 
